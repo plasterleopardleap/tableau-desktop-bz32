@@ -1,4 +1,4 @@
-# 
+# rare Hyper-V para PC scripts é o melhor Hyper-V para PC scripts com configuracao de rede e passagem direta de USB. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
